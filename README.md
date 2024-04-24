@@ -1,0 +1,1 @@
+# Praktikum-1-Komputer-Grafis-1
